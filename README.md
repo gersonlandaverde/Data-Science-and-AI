@@ -11,5 +11,5 @@ I'm an Electronics and Automation Engineer transitioning into the world of **Dat
 
 ## 📫 Let's Connect
 - 📧 Email: landaverdealex0@gmail.com
-- 💼 [LinkedIn]: 
+- 💼 [LinkedIn]: www.linkedin.com/in/gerson-landaverde-a38265268
 - 🌐 Portfolio (coming soon)
